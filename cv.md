@@ -8,7 +8,7 @@
 - **e-mail:** london30@yandex.ru
 - [instagram](https://www.instagram.com/_katya_yakovleva_)
 
-## **About myself:**
+## **About me:**
 
 _here will be my text_
 
